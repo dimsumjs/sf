@@ -2,10 +2,10 @@
 ##Let us all meet and eat
 
 ###Where
-????
+[Great Eastern](http://www.greateasternsf.com/)
 
 ###When
-???
+August 2nd 2015 at 1pm
 
 ###Ham sui gok
 Yes please
