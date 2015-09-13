@@ -2,12 +2,16 @@
 ##Let us all meet and eat
 
 ###Where
-[Great Eastern](http://www.greateasternsf.com/)
+[Hong Kong Lounge](http://hongkongloungesf.com/)
 
 ###When
-August 2nd 2015 at 1pm
+September 13th 2015 at 11:30 am
 
-###Ham sui gok
+###Har Gow && Sui Mei?
 Yes please
+
+###Tickets
+
+https://ti.to/dimsum-js/volume-2
 
 ![OMNOM](https://dl.dropboxusercontent.com/u/7351705/gifs/omnomnom/nom-adventure-time.gif)
