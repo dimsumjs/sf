@@ -1,17 +1,17 @@
-#DimSum.js sf
-##Let us all meet and eat
+# DimSum.js sf
+## Let us all meet and eat
 
-###Where
-[Hong Kong Lounge](http://hongkongloungesf.com/)
+### Where
+Open to suggestions
 
-###When
-September 13th 2015 at 11:30 am
+### When
+Maybe again one day
 
-###Har Gow && Sui Mei?
+### Har Gow && Sui Mei?
 Yes please
 
-###Tickets
+### Tickets
 
-https://ti.to/dimsum-js/volume-2
+None for now
 
 ![OMNOM](https://dl.dropboxusercontent.com/u/7351705/gifs/omnomnom/nom-adventure-time.gif)
